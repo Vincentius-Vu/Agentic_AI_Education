@@ -1,10 +1,10 @@
 # Agentic AI trong giáo dục: Bản đồ toàn cầu, chiến lược Trung Quốc và bài học cho Việt Nam
 
-### Phụ đề: Phản ứng của ngành giáo dục Trung Quốc và các nước trước làn sóng Agentic AI — Báo cáo nghiên cứu chuyên sâu
+### Phản ứng của ngành giáo dục Trung Quốc và các nước trước làn sóng Agentic AI — Báo cáo nghiên cứu chuyên sâu
 
 ---
 
-## Tóm tắt điều hành
+## Tóm tắt
 
 Trung Quốc đang thực hiện một trong những chiến dịch tích hợp AI vào giáo dục quy mô lớn và hệ thống nhất trên thế giới. Từ tháng 9 năm 2025, AI trở thành môn học bắt buộc tại tất cả trường tiểu học và trung học trên toàn quốc, áp dụng cho học sinh từ 6 tuổi trở lên. Trong bối cảnh làn sóng **Agentic AI** (AI tác nhân tự chủ) đang định hình lại toàn bộ bức tranh công nghệ toàn cầu, Trung Quốc đã phản ứng với tốc độ và quy mô đáng kinh ngạc, kết hợp sức mạnh của nhà nước, doanh nghiệp công nghệ và hệ thống giáo dục để tạo ra một hệ sinh thái giáo dục AI toàn diện. Báo cáo này phân tích sâu các khía cạnh chính sách, thực thi cấp trường, đổi mới công nghệ, thách thức và hàm ý quốc tế của chiến dịch này.
 
