@@ -14,9 +14,8 @@
 6. [CHƯƠNG 5: Thay Đổi Tư Duy – Chuẩn Bị Nền Tảng](#chương-5-thay-đổi-tư-duy--chuẩn-bị-nền-tảng)
 7. [CHƯƠNG 6: Rèn Luyện Năng Lực – Những Điều Cần Làm Mỗi Ngày](#chương-6-rèn-luyện-năng-lực--những-điều-cần-làm-mỗi-ngày)
 8. [CHƯƠNG 7: Giáo Dục Và Cuộc Sống Trong Thời Đại Mới](#chương-7-giáo-dục-và-cuộc-sống-trong-thời-đại-mới)
-9. 
-10. [CHƯƠNG 8: Kho Báu Không Nằm Ở Cuối Đường](#chương-8-kho-báu-không-nằm-ở-cuối-đường)
-11. [KẾT LUẬN CUỐI CÙNG](#kết-luận-cuối-cùng)
+9. [CHƯƠNG 8: Kho Báu Không Nằm Ở Cuối Đường](#chương-8-kho-báu-không-nằm-ở-cuối-đường)
+10. [KẾT LUẬN CUỐI CÙNG](#kết-luận-cuối-cùng)
 
 ---
 
