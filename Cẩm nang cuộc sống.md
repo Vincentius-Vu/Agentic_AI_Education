@@ -267,7 +267,6 @@ Tư duy cũ xem giá trị nằm ở việc tự tay làm mọi việc từ A đ
 **Điều cần chuẩn bị:** Nhận diện rõ điểm mạnh của bản thân, hiểu rõ giá trị riêng của con người. Luôn đặt câu hỏi: “Điều này có phải là việc chỉ con người mới làm được không?” trước khi bắt tay vào làm.
 
 ### 4. Thay đổi định nghĩa về “Học tập”: Từ "Biết cách dùng" sang "Thực sự hiểu"
-Đây là nội dung cốt lõi được bổ sung theo quan điểm của bạn, giải thích một nhầm lẫn phổ biến và nguy hiểm của con người.
 
 #### ✅ Nhầm lẫn nguy hiểm: Giữa "thấy", "dùng" và "hiểu"
 Có một điều mà hầu hết mọi người đều dễ mắc phải, đó là sự nhầm lẫn nghiêm trọng giữa ba khái niệm: **cái mình nhìn thấy, cái mình biết cách sử dụng, và cái mình thực sự hiểu bản chất.**
