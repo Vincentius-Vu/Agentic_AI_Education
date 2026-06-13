@@ -115,7 +115,7 @@ Câu hỏi đúng là: *Điều gì thật sự tạo ra hệ sinh thái nền t
 
 Đề thi THPT không cần phải hoàn hảo. Nhưng chất lượng tư duy ẩn chứa trong ngữ liệu là thứ cần được thảo luận thẳng thắn. Thế hệ trẻ Việt Nam hoàn toàn có khả năng đối diện với những câu hỏi phức tạp hơn — tư duy biết hỏi "từ đâu?" trước khi hỏi "như thế nào?", biết định giá năng lực nghiên cứu gốc rễ thay vì chỉ choáng ngợp trước những ứng dụng bề mặt. Mở ra một không gian tư duy như thế, đó mới là giá trị cốt lõi mà giáo dục cần hướng tới.
 
-Bài viết không phủ nhận vai trò của công nghệ trong phát triển quốc gia. Điều được đặt lại ở đây là thứ tự nhân quả: công nghệ có thể là động lực tăng trưởng, nhưng năng lực khoa học, giáo dục và nhận thức mới là điều kiện để công nghệ được sinh ra và liên tục được tái tạo
+**Bài viết không phủ nhận vai trò của công nghệ trong phát triển quốc gia. Điều được đặt lại ở đây là thứ tự nhân quả: công nghệ có thể là động lực tăng trưởng, nhưng năng lực khoa học, giáo dục và nhận thức mới là điều kiện để công nghệ được sinh ra và liên tục được tái tạo**
 
 ---
 
