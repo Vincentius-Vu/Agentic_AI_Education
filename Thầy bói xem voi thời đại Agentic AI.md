@@ -1,4 +1,5 @@
 # Thầy bói xem voi: Từ giới hạn của nhận thức đến kiến trúc của trí tuệ tập thể
+<img width="1672" height="941" alt="image" src="https://github.com/user-attachments/assets/c0415203-852d-42ec-b872-eac115d32ec6" />
 
 *Bài luận trong chuỗi “Old Stories, New Meaning”*
 
