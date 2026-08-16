@@ -105,7 +105,6 @@ Một thứ dù rất khan hiếm, thậm chí là duy nhất trên đời, như
 Tri thức trong quá khứ có giá trị cao không chỉ vì nó khan hiếm, mà vì con người *coi trọng* nó, *ưa thích* nó vì tin rằng nó mang lại lợi ích, quyền lực và tương lai. Ngày nay, tri thức mất đi giá trị kinh tế không phải vì nó không còn hữu dụng, mà vì nó không còn là thứ *người ta tranh nhau để có được* nữa. Ai cũng có thể có, nên nó không còn là thứ tạo ra sự khác biệt hay khát vọng sở hữu.
 
 ### 4. Phân biệt rõ: Phương tiện và Cứu cánh
-Đây là điểm triết học cốt lõi, là nền tảng của toàn bộ tư duy trong cuốn sách, cũng là nhận định sâu sắc nhất mà bạn đã đưa ra để làm rõ bản chất giá trị.
 
 Trong suốt thời gian dài, con người thường hiểu sai về khái niệm **cứu cánh**. Người ta thường ví von: *“Cuộc đời là hành trình đi tìm chìa khóa, để cuối cùng mở ra một kho báu đã có sẵn. Cứu cánh là kho báu nằm ở cuối đường, là mục tiêu cuối cùng cần đạt được. Tri thức là chìa khóa, là phương tiện để đến được đó.”*
 
