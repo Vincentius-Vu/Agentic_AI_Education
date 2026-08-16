@@ -89,7 +89,7 @@ Trong kinh tế học, có một sự thật hiển nhiên nhưng thường bị
 Cũng giống như cái thước kẻ dùng để đo chiều dài, cái cân dùng để đo khối lượng — tiền dùng để đo lường và trao đổi giá trị, nhưng bản thân nó không phải là giá trị. Nhận ra điều này giúp chúng ta không bị lạc hướng: đừng bao giờ xem tiền là mục tiêu cuối cùng, mà chỉ xem nó là phương tiện để đạt đến những giá trị thực sự khác.
 
 ### 2. Giá trị ≠ Lợi ích thực sự: Giá trị nằm ở sự ưa thích
-Đây là nhận định quan trọng nhất, đảo ngược nhiều quan niệm truyền thống mà bạn đã chỉ ra: **Giá trị không phải là thứ có lợi ích nhất thiết, cũng không phải là thứ hữu dụng hay mang lại lợi ích lâu dài; mà nó đơn giản là thứ mà người ta "thích", thứ mà người ta lựa chọn và coi là quan trọng — ngay cả khi điều đó đôi khi không mang lại lợi ích gì lâu dài cho họ.**
+Đây là nhận định quan trọng nhất, đảo ngược nhiều quan niệm truyền thống: **Giá trị không phải là thứ có lợi ích nhất thiết, cũng không phải là thứ hữu dụng hay mang lại lợi ích lâu dài; mà nó đơn giản là thứ mà người ta "thích", thứ mà người ta lựa chọn và coi là quan trọng — ngay cả khi điều đó đôi khi không mang lại lợi ích gì lâu dài cho họ.**
 
 Chúng ta thường có tư duy: *“Điều gì tốt cho tôi, điều đó có giá trị”* hoặc *“Điều gì hữu dụng, điều đó đáng giá”*. Nhưng thực tế kinh tế thì khác hẳn. Giá trị được tạo ra từ sự yêu mến, từ cảm xúc, từ niềm tin và từ ý nghĩa mà con người tự gán cho một điều gì đó, chứ không phải từ tính hữu dụng khách quan của nó.
 
