@@ -2,6 +2,9 @@
 
 Hầu như người Việt Nam nào cũng thuộc bài đồng dao này, đôi khi thuộc đến mức không còn để ý mình đang tin vào điều gì mỗi lần đọc lại nó:
 
+> *Thằng Bờm có cái quạt mo,*
+> *Phú Ông xin đổi ba bò chín trâu,*
+> *Bờm rằng Bờm chẳng lấy trâu,* 
 > *Phú ông xin đổi ao sâu cá mè,*
 > *Bờm rằng Bờm chẳng lấy mè,*
 > *Phú ông xin đổi ba bè gỗ lim,*
@@ -15,11 +18,11 @@ Trâu, bò, ao cá, gỗ lim, chim quý — Phú ông lần lượt đưa ra, m�
 
 Nhưng trước khi bàn xem Bờm có khôn hay không, có một câu hỏi đến sớm hơn, ít khi được đặt ra — và nếu bỏ qua nó, mọi lập luận phía sau về sự "khôn ngoan" của Bờm sẽ chỉ nghe như một trò chơi chữ: liệu bản thân đề nghị của Phú ông, đổi cả một gia tài để lấy một cái quạt mo, có hợp lý ngay từ đầu không?
 
-Với hầu hết người nghe, câu trả lời gần như tự động: không. Cái quạt mo là thứ tầm thường nhất có thể hình dung — ai cũng đan được, nửa buổi là xong, phơi khô là dùng. Không ai bỏ cả một gia tài để đổi lấy một vật dễ kiếm đến vậy. Và vì tiền đề này nghe phi lý, câu chuyện thường được xếp gọn vào loại chuyện vui, đồng dao cho trẻ nhỏ — không ai buồn hỏi xem đoạn sau có ẩn ý gì, vì đoạn đầu đã "sai" từ gốc rồi.
+Với hầu hết người nghe, câu trả lời gần như tự động: không. Cái quạt mo là thứ tầm thường nhất có thể hình dung — ai cũng làm được, mo cau rơi đầy ngoài vườn, nhặt vào, cắt gọn, phơi khô là dùng, nửa buổi là xong. Không ai bỏ cả một gia tài để đổi lấy một vật dễ kiếm đến vậy. Và vì tiền đề này nghe phi lý, câu chuyện thường được xếp gọn vào loại chuyện vui, đồng dao cho trẻ nhỏ — không ai buồn hỏi xem đoạn sau có ẩn ý gì, vì ngay từ đầu đã "sai" rồi.
 
 Đây đúng là một phần lý do khiến bài đồng dao tồn tại được qua bao thế hệ: nhịp điệu lặp lại, mức phi lý tăng dần, rồi rơi xuống một cái kết bất ngờ và nhẹ tênh — đó là công thức quen thuộc của thể loại, để gây cười là chính, không nhất thiết phải chuyên chở một triết lý nào. Cứ để nguyên như vậy, bài đồng dao vẫn vui, vẫn đáng nhớ, và không cần thêm gì nữa.
 
-Nhưng thử một lần tạm gác lý do thể loại sang một bên, và hỏi nghiêm túc: nếu Phú ông là người thật, ông đang hành xử phi lý, hay chỉ đang hành xử khác với cách phần lớn chúng ta hành xử?
+Nhưng thử một lần tạm gác lý do thể loại sang một bên, và hỏi nghiêm túc: nếu Phú Ông là người thật, ông đang hành xử phi lý, hay chỉ đang hành xử khác với cách phần lớn chúng ta hành xử?
 
 ---
 
@@ -45,7 +48,7 @@ Một khi tiền đề không còn bị gạt bỏ ngay từ đầu, câu hỏi 
 
 Cần nói thẳng ngay từ đầu: những trang sau đây không phải một khảo cứu về việc người xưa "thực ra" muốn gửi gắm điều gì qua một bài đồng dao dân gian. Đây là một cách đọc chủ động — mượn một câu chuyện gần như ai cũng thuộc để nghĩ tiếp về một câu hỏi vẫn còn nguyên tính thời sự trong đời sống hôm nay: khi nào một lựa chọn là hợp lý, và hợp lý đối với ai.
 
-Tạm gác phán xét "Bờm ngốc hay khôn" sang một bên. Câu hỏi đáng giữ lại hơn là: điều gì khiến một vật — một cái quạt, một nắm xôi, một con trâu, hay bất cứ thứ gì người khác đưa cho ta — thực sự có giá trị? Và giá trị đó, xét cho cùng, đang được đo bằng thước đo của ai?
+Tạm gác phán xét "Bờm khôn hay ngốc" sang một bên. Câu hỏi đáng giữ lại hơn là: điều gì khiến một vật — một cái quạt, một nắm xôi, một con trâu, hay bất cứ thứ gì người khác đưa cho ta — thực sự có giá trị? Và giá trị đó, xét cho cùng, đang được đo bằng thước đo của ai?
 
 ---
 
