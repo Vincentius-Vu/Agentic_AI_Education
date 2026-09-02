@@ -95,7 +95,7 @@ Bản kể tiếng Việt  —  *thầy bói xem voi*  —  giữ một vị tr�
 
 Một câu chuyện tưởng như cổ xưa, quen thuộc đến mức đã hòa vào ngôn ngữ hằng ngày, hóa ra lại là thành viên trẻ nhất trong cả gia đình  —  một lời nhắc nhở nhỏ, nhưng đáng nhớ, rằng ngay cả những gì có vẻ hiển nhiên nhất cũng luôn đáng để kiểm tra lại tận gốc trước khi tin.
 
-\rule{0.5\textwidth}{0.4pt}
+---
 
 Xin mời bạn đọc bước vào căn phòng tối, nơi những người mù đang chờ được sờ vào con voi  —  và xem, sau hơn hai nghìn năm, chúng ta đã học được cách lắng nghe nhau hay chưa.
 
